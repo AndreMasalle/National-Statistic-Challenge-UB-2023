@@ -1,4 +1,4 @@
-# National-Statistic-Challenge-UB-2023
+# National Statistic Challenge Universitas Brawijaya 2023
 
 <table align="center">
   <tr>
