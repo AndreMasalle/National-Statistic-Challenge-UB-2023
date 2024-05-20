@@ -17,6 +17,8 @@
 
 <br>
 
+Important Note: Ini adalah case yang diberikan pada penyisihan dan juga berhasil terpilih menuju ke semifinal
+
 **APAKAH MONKEYPOX AKAN MENJADI COVID-19 2.0?**
 
 Pada 25 Mei 2022, lebih dari 200 kasus Monkeypox di 21 negara telah terdeteksi.
